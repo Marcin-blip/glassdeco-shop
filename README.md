@@ -1,0 +1,1 @@
+# glassdeco-shop
